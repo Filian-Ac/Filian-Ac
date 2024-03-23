@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Filian-Ac
 - 👀 I’m interested in Making friends and needing a friend
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on Streams/lives
 - 📫 How to reach me mail
 - 😄 Pronouns: they/them or he/him
